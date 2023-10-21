@@ -1,1 +1,0 @@
-# shugora.github.io
